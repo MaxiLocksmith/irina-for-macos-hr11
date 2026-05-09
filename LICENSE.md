@@ -1,4 +1,4 @@
-
+Enhance Irina for macOS with Irina for macOS smart Automation - OCR-support and performance-boost, the #1 automation. Includes OCR-support and performance-boost for a smoother
 
 
 
